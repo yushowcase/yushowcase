@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tech Enthusiast with a passion for automation. <br>Currently working on Voice Cloner  
+Tech Enthusiast with a passion for automation. <br>
 
 
 ## 🌐 Socials:
