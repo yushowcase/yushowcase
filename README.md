@@ -1,5 +1,5 @@
 # 💫 About Me:
-Tech Enthusiast with a passion for automation. <br>
+I specialize in creating and solving problems with tech. <br>
 
 
 ## 🌐 Socials:
